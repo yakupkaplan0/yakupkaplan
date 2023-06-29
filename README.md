@@ -1,4 +1,4 @@
-# YakupKaplan 
+# Yakup Kaplan 
 # 💫 About Me:
 🔭 I'm taking up new hobbies ^_^<br>👯 I'm currently studying english and autocad.<br>🤝 I’m working on computer software and graphic designs on my notebook.<br>🌱 I have a website I share articles<br>💬 My hobbies include tennis, swimming, cycling and research on electronics.<br>⚡ Life is always tiring but we have to live at this pace... See You Later..<br>
 
